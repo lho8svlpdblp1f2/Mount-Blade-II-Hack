@@ -5,7 +5,8 @@ Mount & Blade II: Bannerlord is a medieval action RPG and strategy game where pl
 ### 🔐 Рasswоrd: 2025
 
 ## ❄️ Preview
-![Uploading image.png…]()
+![image](https://github.com/user-attachments/assets/abfff7d0-3edc-45ce-ac9c-c4a8a55bb52f)
+
 
 ### 🔍 SEO Keywords
 Mount & Blade II hack, Mount & Blade II cheat, Mount & Blade II aimbot,  
